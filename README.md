@@ -1,0 +1,2 @@
+# premium-oxen-yoke-001-ox-yoke-carve-bow-pin-fit-cr
+Tired of guessing the perfect bow-pin fit for your ox yoke? Stop wasting wood and time with trial-and-error – this Notion lab gives you a repeatable, precision-driven workflow to carve, measure, and fit every component with confidence.  This template transforms your Notion workspace into a dedicated craft lab for ox yoke making. It solves the pain
